@@ -1,5 +1,9 @@
-<div align="center">UUUUUUHHHH WHOEVER WAS FRONTING WHEN THIS ACC WAS MADE DITCHED SO NOW I'M WORKING ON IT I GUESS???
+<div align="center">
+꒰🌐꒱  ♡　 。𓎠𓎟𓎠
+  
+$\color{#3e94e8}{\textsf{ Work in progress profile . . . }}$ <br>
 
+꒰🪽꒱  ♡　 。𓎠𓎟𓎠
 <!--
 **Keeleykeeze/Keeleykeeze** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
