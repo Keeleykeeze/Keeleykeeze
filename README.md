@@ -4,7 +4,7 @@
   
 ### $\color{#3e94e8}{\textsf{ DNI if you are . . . }}$ <br>
 
-Radqueer ,  Endogenic ,  Pro endo ,  harmful transID ,  anti blankqueer ,  darkshipper ,  proshipper ,  profic
+###### Radqueer ,  Endogenic ,  Pro endo ,  harmful transID ,  anti blankqueer ,  darkshipper ,  proshipper ,  profic ,  pro/neu harassment ,  anti cringe culture ,  kodocon ,  harmful para ,  anti recovery ,  anti kinnie ,  anti therian/otherkin ,  anti TD/CD/TT/CT ,  T.R.A.S.H ,  anti confrontation ,  anti re-education ,  ETC
 
 ## ꒰🪽꒱  ♡　 。𓎠𓎟𓎠
 <!--
