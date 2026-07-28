@@ -2,7 +2,9 @@
   
 ## ꒰🌐꒱  ♡　 。𓎠𓎟𓎠
   
-## $\color{#3e94e8}{\textsf{ Work in progress profile . . . }}$ <br>
+### $\color{#3e94e8}{\textsf{ DNI if you are . . . }}$ <br>
+
+Radqueer ,  Endogenic ,  Pro endo ,  harmful transID ,  anti blankqueer ,  darkshipper ,  proshipper ,  profic
 
 ## ꒰🪽꒱  ♡　 。𓎠𓎟𓎠
 <!--
