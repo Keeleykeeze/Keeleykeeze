@@ -6,7 +6,7 @@
   
 <img width="800" height="240" alt="Postbytritsukiii8images-ezgif com-optimize" src="https://github.com/user-attachments/assets/8ec8887a-5674-4fd4-9f7b-17a0ee3aa5cf" />
 
-###### <ins>[Strawpage ,](https://keeleykeeze.straw.page/) <ins>[  Pinterest.](https://pin.it/fRqT7dAQq) More to come...
+###### <ins>[Strawpage ,](https://keeleykeeze.straw.page/)<ins>[  Pinterest.](https://pin.it/fRqT7dAQq) More to come...
 
 <img width="2000" height="40" alt="tumblr_24d58fe0c3535dcd474cc01caa84df9f_e6409f3c_2048" src="https://github.com/user-attachments/assets/fafb6080-9d74-4e60-94cd-42b5483df47d" />
   
