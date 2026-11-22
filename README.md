@@ -15,6 +15,8 @@
 
 ###### ✂┈ Radqueer ,  Endogenic / Non-disordered system ,  harmful transID ,  anti blankqueer ,  darkshipper ,  proshipper ,  profic ,  pro/neu harassment ,  anti cringe culture ,  kodocon ,  harmful para ,  anti recovery ,  anti kinnie ,  anti therian/otherkin ,  anti TD/CD/TT/CT ,  T.R.A.S.H ,  anti confrontation ,  anti re-education ,  anti paradreamers ,  over 20 (IRLS are acceptions) ,  ETC ┈
 
+###### (If you're on my DNI feel free to ask why, RESPECTFULLY. This is my ONLY DNI exception.)
+
  
  <img width="1000" height="40" alt="tumblr_aa3147f94042587e9e40c889f92742ba_b04f0086_1280" src="https://github.com/user-attachments/assets/82b47719-1fbf-4677-84df-3aeedafdc1e6" />
 
